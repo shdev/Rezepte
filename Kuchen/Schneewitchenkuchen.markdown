@@ -25,18 +25,20 @@
 ###Teig
 * Fett und Zucker schaumig rühren
 * Eier dazu, cremig rühren
-* Mehl und Backpulver dazu
-* Kirchen rauf, leicht eindrücken
+* Mehl und Backpulver dazu, durchmixen
+* Kirschen rauf, leicht eindrücken
 * 30 min, 175 °C
 * Kuchen abkühlen lassen
 
 ###Creme
 * 5 EL Milch 
 * Puddingpulver und Zucker glattrühren
-* Milchen zum kochen bringen -> Pudding zubereiten
+* Milch zum Kochen bringen 
+* Pudding zubereiten
 * Butter und Zitronenzeugs cremig schlagen
-* Vanillepudding nach und nach unterrühren (es sollte die gleiche Temteratur haben)
+* Vanillepudding nach und nach unterrühren (es sollte die gleiche Temperatur haben)
 * auf den kalten Kuchen verteilen
 
 ###Guss
-* Kuvertüre weichmachen und dann auf dem Kuchen verteilen wieder kalt stellen.
+* Kuvertüre weichmachen und dann auf dem Kuchen verteilen
+* wieder kalt stellen
